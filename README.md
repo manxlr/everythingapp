@@ -50,7 +50,7 @@ Your privacy and security are our top priorities:
 
 ## 📞 **Contact Us**
 
-We'd love to hear from you! Whether you have a question, suggestion, or feedback, feel free to reach out:
+Whether you have a question, suggestion, or feedback, feel free to reach out:
 
 - **Email**: [nszeeshankhalid@gmail.com](mailto:nszeeshankhalid@gmail.com)
 
